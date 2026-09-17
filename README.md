@@ -1,0 +1,1 @@
+# kinsor-manual
